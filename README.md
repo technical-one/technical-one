@@ -5,5 +5,5 @@
      Mail- vjofficialemail@gmail.com
 For the details of my projects
      
-    Phone no. - 90153 70592
+   
 
